@@ -4,7 +4,10 @@ Join Our Telegram Group Becauseif t
 if this repo is banned ,we will provide another working repo so that you can make rdp.
 ENJOY
 
-Credit:https://t.me/shadowmtctech
+Credit:
+https://t.me/shadowmtctech
+https://t.me/shadowmtctech
+https://t.me/shadowmtctech
 
 # Free RDP 6 HOURS
 
